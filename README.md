@@ -1,3 +1,3 @@
 # yooo
-my first try
+my first try;
 autbher - me
